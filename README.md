@@ -1,2 +1,3 @@
-# perc
-Psyche-Eros Rose Croix Website
+# Psyche-Eros Rose Croix Chapter of Ordo Templi Orientis
+
+
