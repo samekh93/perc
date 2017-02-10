@@ -22,6 +22,8 @@ Brandy has been active in the magical communities since 1991 as a Thelemite, Wit
 **12:30pm: Doors Open**  
 **1:00pm: Presentations**  
 
+*ALL ARE WELCOME - All events held under the auspices of Psyche-Eros Chapter are held in support of all races and ethnicities and support every individual's right to express themselves in regards to sex, gender identity, and sexual orientation*
+
 **Sex, Love and Thelema:**  
 *Sex*: Thelemic magick is gendered. Both the priest and the priestess are necessary to accomplish the miracle of the Gnostic Mass. Even so women regularly encounter the idea that men actively work the magick of the system while women passively assist them. We will explore physical gender, magical gender, and gender in the Christian Mass to illuminate gender in the Gnostic Mass.
 
@@ -42,8 +44,6 @@ Like every religion and/or philosophy Thelema develops over time through the liv
 Join us back at Sekhet-Maat Lodge for an evening reception with a cash bar, a delightful spread of food and ritual.
 
 **Tickets:**
-
-*ALL ARE WELCOME - All events held under the auspices of Psyche-Eros Chapter are held in support of all races and ethnicities and support every individual's right to express themselves in regards to sex, gender identity, and sexual orientation*
 
 20.00 in advance   
 25.00 at the door 
