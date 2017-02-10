@@ -22,7 +22,7 @@ Brandy has been active in the magical communities since 1991 as a Thelemite, Wit
 **12:30pm: Doors Open**  
 **1:00pm: Presentations**  
 
-**Sex, Love and Thelema:** 
+**Sex, Love and Thelema:**  
 *Sex*: Thelemic magick is gendered. Both the priest and the priestess are necessary to accomplish the miracle of the Gnostic Mass. Even so women regularly encounter the idea that men actively work the magick of the system while women passively assist them. We will explore physical gender, magical gender, and gender in the Christian Mass to illuminate gender in the Gnostic Mass.
 
 *Love*: Directed sexual energy accomplishes thaumaturgy. Theurgy responds to the call of Babalon and Nuit – unto me! New formulae construct the framework for women's ritual exploration of the active sex magician role. The gendered magick of Thelema leads us to the realization of our own divinity through the sexual relationship of the human with the divine. 
