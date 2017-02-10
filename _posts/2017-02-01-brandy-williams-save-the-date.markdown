@@ -39,7 +39,7 @@ Join us back at Sekhet-Maat Lodge for an evening reception with a cash bar and a
 20.00 in advance  
 25.00 at the door  
 
-Payment can be made via Paypal to: psycheerosrc@gmail.com (Put the note: "Brandy Williams" and your name in the notes field)
+Payment can be made via Paypal to: <psycheerosrc@gmail.com> (Put the note: "Brandy Williams" and your name in the notes field)
 
 **Proceeds will be collected by the Chapter to support Sekhet-Maat Lodge and its mission to put the word THELEMA on the lips of every person in Portland!**
 
