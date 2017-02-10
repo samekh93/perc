@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Save the DATE! Brandy Williams Presentations! (March 4)"
+title:  "Brandy Williams: Sex, Love and Thelema"
 date:   2017-02-01 14:01:23 -0800
 categories: events
 ---
@@ -11,7 +11,7 @@ categories: events
 
 *Do what thou wilt shall be the whole of the Law.*
 
-Psyche-Eros Rose Croix Chapter would like to invite you to join us at Sekhet-Maat Lodge, O.T.O. for presentations by Sister Brandy Williams! 
+Psyche-Eros Rose Croix Chapter would like to invite you to join us at Sekhet-Maat Lodge, O.T.O. on Saturday, March 4, 2017ev for presentations by Sister Brandy Williams! 
 
 Brandy has been active in Ordo Templi Orientis since 2001. She is past master of Vortex Oasis. At present she serves as High Priestess of Anahata Rose Croix Chapter. Brandy is also an ordained priestess in Ecclesia Gnostica Catholica and celebrates Mass with Vortex Oasis. She presented "Feminist Thelema" at two OTO Women's Conferences and NOTOCON and was co-keynote this year at Babalon Rising. 
 
