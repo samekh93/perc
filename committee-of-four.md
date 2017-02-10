@@ -10,7 +10,6 @@ permalink: /co4/
 
 The Committee of Four is appointed by the Most Wise Sovereign and High Priestess of the Chapter to assist in mediating disputes and address issues between members as well. 
 
-If you believe you need our assistance, you can contact your Committee of Four as follows:
+If you believe you need our assistance and we are your Chapter of Mediation, you can contact the Chapter's Committee of Four by sending an email to: <the4@psycheeroschapter.org>
 
-Write to all four members: <the4@psycheeroschapter.org>
-
+Your email will be received by all four members. 
