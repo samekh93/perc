@@ -4,4 +4,4 @@ title: Contact
 permalink: /contact/
 ---
 
-# Psyche-Eros contact page
+Email the Most Wise Sovereign and High Priestess: <contact@psycheeroschapter.org>
