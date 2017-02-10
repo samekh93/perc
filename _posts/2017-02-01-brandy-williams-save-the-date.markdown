@@ -45,8 +45,8 @@ Join us back at Sekhet-Maat Lodge for an evening reception with a cash bar, a de
 
 *ALL ARE WELCOME - All events held under the auspices of Psyche-Eros Chapter are held in support of all races and ethnicities and support every individual's right to express themselves in regards to sex, gender identity, and sexual orientation*
 
-20.00 in advance  
-25.00 at the door  
+20.00 in advance   
+25.00 at the door 
 
 Payment can be made via Paypal to: <psycheerosrc@gmail.com> (Put the note: "Brandy Williams" and your name in the notes field)
 
