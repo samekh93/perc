@@ -29,25 +29,28 @@ Brandy has been active in the magical communities since 1991 as a Thelemite, Wit
 
 *Thelema*: At present there are two paths for women in Thelema: to experience the system as men and to represent the divine feminine as the priestess does in the Mass. How can women also walk the path of accomplishment as Thelemic magicians? New ideas suggest avenues for women’s operative magick.
 
-**Creating Consent Culture in the OTO:** This facilitated conversation asks us all to participate in creating a safe and thoughtful environment in our communities through exploring permitted and unpermitted touch.
+**Creating Consent Culture in the OTO:**   
+This facilitated conversation asks us all to participate in creating a safe and thoughtful environment in our communities through exploring permitted and unpermitted touch.
 
-**Inclusive Thelema:** Like every religion and/or philosophy Thelema develops over time through the lived experience of Thelemites. A series of questions invites us to share our experience and imagine possible futures. Topics we can cover include: post-Crowley Thelema, Woman Friendly Thelema, Race Conscious Thelema, Queer Thelema, Cultural Appropriation, Secrecy, and Promoting Responsible Change. We will decide together where the conversation goes and what we will do next.
+**Inclusive Thelema:**  
+Like every religion and/or philosophy Thelema develops over time through the lived experience of Thelemites. A series of questions invites us to share our experience and imagine possible futures. Topics we can cover include: post-Crowley Thelema, Woman Friendly Thelema, Race Conscious Thelema, Queer Thelema, Cultural Appropriation, Secrecy, and Promoting Responsible Change. We will decide together where the conversation goes and what we will do next.
 
 **5:00pm-7:00pm:** Dinner break (on your own)
 
 **7:00pm:** Evening ritual and reception
 
-Join us back at Sekhet-Maat Lodge for an evening reception with a cash bar and a delightful spread of food and ritual.
+Join us back at Sekhet-Maat Lodge for an evening reception with a cash bar, a delightful spread of food and ritual.
 
 **Tickets:**
 
-ALL ARE WELCOME
+*ALL ARE WELCOME - All events held under the auspices of Psyche-Eros Chapter are held in support of all races and ethnicities and support every individual's right to express themselves in regards to sex, gender identity, and sexual orientation*
+
 20.00 in advance  
 25.00 at the door  
 
 Payment can be made via Paypal to: <psycheerosrc@gmail.com> (Put the note: "Brandy Williams" and your name in the notes field)
 
-**Proceeds will be collected by the Chapter to support Sekhet-Maat Lodge and its mission to put the word THELEMA on the lips of every person in Portland!**
+**Proceeds will be collected by the Chapter to support the local bodies in our region**
 
 Sister Brandy will have copies of her book on hand for sales and signing as well.
 
