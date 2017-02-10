@@ -12,14 +12,5 @@ The Committee of Four is appointed by the Most Wise Sovereign and High Priestess
 
 If you believe you need our assistance, you can contact your Committee of Four as follows:
 
-Write to all four members: <four@co4.org>
+Write to all four members: <the4@psycheeroschapter.org>
 
-Individual Contacts:
-
-<liz@co4.org>  
-
-<jason@co4.org>  
-
-<beth@co4.org>  
-
-<david@co4.org>  
