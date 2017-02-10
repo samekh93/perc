@@ -4,9 +4,7 @@ title: Resources
 permalink: /resources/
 ---
 
-Crisis Intervention, Conflict Resolution, and Mediation
-
-Links:
+Crisis Intervention, Conflict Resolution, and Mediation links.
 
 [O.T.O.](http://oto.org){:target="_blank"}
 
