@@ -13,12 +13,15 @@ categories: events
 
 Psyche-Eros Rose Croix Chapter would like to invite you to join us at Sekhet-Maat Lodge for a day of presentations by Sister Brandy Williams! 
 
-Our Sister has been an active member of OTO since 2001, enjoying various positions through the years. She has many years of active experience in various magical communities since 1991 and is author of a number of books and anthologies including Ecstatic Ritual: Practical Sex Magic, The Woman Magician: Revisioning Western Metaphysics from a Woman's Perspective and Experience,  and For the Love of the Gods: The History and Modern Practice of Theurgy.
+Brandy Williams has been active in Ordo Templi Orientis since 2001. She is past master of Vortex Oasis. At present she serves as High Priestess of Anahata Rose Croix Chapter. Brandy is also an ordained priestess in Ecclesia Gnostica Catholica and celebrates Mass with Vortex Oasis. She presented "Feminist Thelema" at two OTO Women's Conferences and NOTOCON and was co-keynote this year at Babalon Rising. 
+
+Brandy has been active in the magical communities since 1991 as a Thelemite, Witch, Golden Dawn Magician, and Pagan Theurgist. She was a founding member of Sisters of Seshat, a sororal order in Western Traditional Magic. She frequently presents at conferences including Pantheacon, Paganicon, Theurgicon, and the Esoteric Book Conference. She has published a number of books and anthologies including Ecstatic Ritual: Practical Sex Magic, The Woman Magician: Revisioning Western Metaphysics from a Woman's Perspective and Experience,  and For the Love of the Gods: The History and Modern Practice of Theurgy.
 
 **Our Schedule for March 4, 2017ev**  
 
 **12:30pm: Doors Open**  
-**1:00pm: Presentation**  
+**1:00pm: Presentations**  
+
 **Sex, Love and Thelema:** A presentation focused on OTO and Thelema and how we view gender in terms of: The Gnostic mass, theurgy, women’s ritual exploration of the active sex magick role and more.
 
 **Creating Consent Culture in the OTO:** This facilitated conversation asks us all to participate in creating a safe and thoughtful environment in our communities through exploring permitted and unpermitted touch.
