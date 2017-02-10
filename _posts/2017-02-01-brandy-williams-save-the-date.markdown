@@ -4,6 +4,9 @@ title:  "Save the DATE! Brandy Williams Presentations! (March 4)"
 date:   2017-02-01 14:01:23 -0800
 categories: events
 ---
+
+![Photo of Brandy](/assets/images/2017-02-01-Brandy.jpg){:class="img-upper-right"}
+
 **Cari Fratres, Sorores et Primus!**
 
 *Do what thou wilt shall be the whole of the Law.*
