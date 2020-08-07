@@ -10,5 +10,5 @@ All members of the Chapter pay dues, which are used to support the our activitie
 - Making a donation to the local bodies we visit for our meetings and initiations 
 - Initiation temple upgrades  
 
-All dues and donations can be paid via Paypal to <psycheerosrc@gmail.com>
+All dues and donations can be paid via Paypal to <contact@psycheeroschapter.org>
 
